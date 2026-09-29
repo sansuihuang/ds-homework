@@ -1,4 +1,4 @@
-# 👋 Hi, I'm zhao (sansuihuang)
+# 👋 Hi, I'm 黄梓钊
 
 > 安静内向的外表下，藏着一个 crazy 的灵魂
 
